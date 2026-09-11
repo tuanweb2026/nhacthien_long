@@ -1,0 +1,7 @@
+*.mp4
+*.mp3
+*.wav
+*.aiff
+.DS_Store
+*.pyc
+__pycache__/

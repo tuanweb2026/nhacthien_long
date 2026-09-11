@@ -1,0 +1,6 @@
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/Bai6 _Binhyen tutai.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/Bai5_Muademthanlocnangluongtieucuc.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/bai4_Thiendinhanduongtaman.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/bai3_tinhlangtritue.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/Bai2_muaroitinhlang.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/bai1_deepsleep.mp4'

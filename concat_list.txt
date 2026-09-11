@@ -1,0 +1,6 @@
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/bai1deepsleep.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/Bai2_muaroitinhlang.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/bai3_tinhlangtritue.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/bai1deepsleep.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/Bai2_muaroitinhlang.mp4'
+file '/Users/abc/Documents/KenhYTB/nhacthien_long/phan1_musicful_done/bai3_tinhlangtritue.mp4'
