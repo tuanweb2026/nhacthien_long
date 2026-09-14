@@ -1,0 +1,45 @@
+# BẢNG TỔNG KẾT HỒI SINH SHORTS DƯỚI 10 VIEWS (ĐỢT 2)
+Tổng số video đã nâng cấp: **97 video**
+
+| STT | Tiêu Đề Cũ | Tiêu Đề Mới (Hook Chuẩn SEO) | Link Shorts | Link Studio |
+| :---: | :--- | :--- | :---: | :---: |
+| 01 | 1 Ly Nước Ấm Sáng Sớm - Bí Mật Của ... | **1 Ly Nước Ấm Sáng Sớm: Bí Mật Trường Thọ & Tr...** | [Xem Shorts](https://youtube.com/shorts/Cjt2EQUdkf8) | [Studio](https://studio.youtube.com/video/Cjt2EQUdkf8/edit) |
+| 02 | Kinh Nikaya: Bình Yên Luôn Có Sẵn N... | **Tâm Bất An? Trở Về Với Hơi Thở: Bí Quyết Định...** | [Xem Shorts](https://youtube.com/shorts/-Or_ztEBxew) | [Studio](https://studio.youtube.com/video/-Or_ztEBxew/edit) |
+| 03 | Phiên Bản Tốt Nhất Nằm Sau Sự Kỷ Lu... | **Kỷ Luật Là Đỉnh Cao Của Tự Do: Muốn Đổi Đời H...** | [Xem Shorts](https://youtube.com/shorts/uTn2KLxmZq8) | [Studio](https://studio.youtube.com/video/uTn2KLxmZq8/edit) |
+| 04 | Đừng Nói Thiếu Thời Gian, Hãy Xem L... | **Bận Rộn Nhưng Vẫn Nghèo? Nhận Ra Sự Thật Này ...** | [Xem Shorts](https://youtube.com/shorts/WjXy-0mVxJQ) | [Studio](https://studio.youtube.com/video/WjXy-0mVxJQ/edit) |
+| 05 | Vùng An Toàn Là Nơi Đẹp Đẽ Nhưng Kh... | **Vùng An Toàn Đang Giết Chết Tương Lai Bạn: Lờ...** | [Xem Shorts](https://youtube.com/shorts/ibGENtO63LA) | [Studio](https://studio.youtube.com/video/ibGENtO63LA/edit) |
+| 06 | Làm 1 Việc Tốt Mỗi Ngày - Cuộc Đời ... | **1 Hành Động Thiện Mỗi Ngày: Cách Gieo Nhân Là...** | [Xem Shorts](https://youtube.com/shorts/FDp2R46Ocwo) | [Studio](https://studio.youtube.com/video/FDp2R46Ocwo/edit) |
+| 07 | Kinh Nikaya: Chúc Bạn Một Đời An Yê... | **Chúc Bạn Một Đời Bình An: Lời Khai Thị Che Ch...** | [Xem Shorts](https://youtube.com/shorts/l5MEOUCxu34) | [Studio](https://studio.youtube.com/video/l5MEOUCxu34/edit) |
+| 08 | Bữa Cơm Gia Đình - Liều Thuốc Chữa ... | **Gia Đạo Bất Hòa Thì Làm Gì? Lời Phật Dạy Về N...** | [Xem Shorts](https://youtube.com/shorts/6WUB9Digf_I) | [Studio](https://studio.youtube.com/video/6WUB9Digf_I/edit) |
+| 09 | Cho Đi Là Cách Làm Giàu Nhanh Nhất ... | **Muốn Giàu Sang Trước Hết Phải Biết Bố Thí: Lu...** | [Xem Shorts](https://youtube.com/shorts/loYyqTCspzE) | [Studio](https://studio.youtube.com/video/loYyqTCspzE/edit) |
+| 10 | Món Quà Lớn Nhất Cho Con Không Phải... | **Để Lại Gì Cho Con Cái? Phật Dạy Thứ Quý Giá H...** | [Xem Shorts](https://youtube.com/shorts/6G_mwBO_uqw) | [Studio](https://studio.youtube.com/video/6G_mwBO_uqw/edit) |
+| 11 | Hạnh Phúc Không Phải Đích Đến, Là C... | **Hạnh Phúc Không Phải Đích Đến, Là Cách Bạn Số...** | [Xem Shorts](https://youtube.com/shorts/JFzqqqOkCKs) | [Studio](https://studio.youtube.com/video/JFzqqqOkCKs/edit) |
+| 12 | 1% Tốt Hơn Mỗi Ngày Bằng 37 Lần Sau... | **1% Tốt Hơn Mỗi Ngày Bằng 37 Lần Sau 1 Năm: Lờ...** | [Xem Shorts](https://youtube.com/shorts/1a-X04SqFig) | [Studio](https://studio.youtube.com/video/1a-X04SqFig/edit) |
+| 13 | Đừng So Sánh Mình Với Thành Công Ng... | **Đừng So Sánh Mình Với Thành Công Người Khác: ...** | [Xem Shorts](https://youtube.com/shorts/czMHYuNkwZA) | [Studio](https://studio.youtube.com/video/czMHYuNkwZA/edit) |
+| 14 | Viết 3 Điều Biết Ơn - Não Bộ Tự Đổi... | **Viết 3 Điều Biết Ơn - Não Bộ Tự Đổi Tích Cực:...** | [Xem Shorts](https://youtube.com/shorts/k8hZ2faFhw0) | [Studio](https://studio.youtube.com/video/k8hZ2faFhw0/edit) |
+| 15 | Dậy Sớm 30 Phút - Thêm 182 Giờ Mỗi ... | **Dậy Sớm 30 Phút - Thêm 182 Giờ Mỗi Năm Cho Mì...** | [Xem Shorts](https://youtube.com/shorts/sngl2xrK0Rk) | [Studio](https://studio.youtube.com/video/sngl2xrK0Rk/edit) |
+| 16 | Kinh Nikaya: Tâm Không Lo Nghĩ Thì ... | **Tâm Không Lo Nghĩ Thì Mỗi Ngày Đều Là Ngày Là...** | [Xem Shorts](https://youtube.com/shorts/TZ_lnwIWTuY) | [Studio](https://studio.youtube.com/video/TZ_lnwIWTuY/edit) |
+| 17 | Kinh Nikaya: Cách Trả Thù Đỉnh Cao ... | **Cách Trả Thù Đỉnh Cao Nhất Là Trở Nên Hạnh Ph...** | [Xem Shorts](https://youtube.com/shorts/iyiMoaKP13g) | [Studio](https://studio.youtube.com/video/iyiMoaKP13g/edit) |
+| 18 | Kinh Nikaya: Tiền Tài Nhiều Đến Mấy... | **Tiền Tài Nhiều Đến Mấy Nhắm Mắt Có Mang Theo ...** | [Xem Shorts](https://youtube.com/shorts/1itmtyp32l0) | [Studio](https://studio.youtube.com/video/1itmtyp32l0/edit) |
+| 19 | Kinh Nikaya: Giữ Một Cái Miệng Sạch... | **Giữ Một Cái Miệng Sạch Là Tích Muôn Phần Phướ...** | [Xem Shorts](https://youtube.com/shorts/EslFBPtnWLA) | [Studio](https://studio.youtube.com/video/EslFBPtnWLA/edit) |
+| 20 | Kinh Nikaya: Đừng Tìm Hạnh Phúc Ở N... | **Đừng Tìm Hạnh Phúc Ở Nơi Người Khác: Lời Phật...** | [Xem Shorts](https://youtube.com/shorts/ULV4GXWVanw) | [Studio](https://studio.youtube.com/video/ULV4GXWVanw/edit) |
+| 21 | Kinh Nikaya: Tại Sao Càng Hiền Lành... | **Tại Sao Càng Hiền Lành Lại Càng Hay Gặp Trắc ...** | [Xem Shorts](https://youtube.com/shorts/BKYUv3D9X2I) | [Studio](https://studio.youtube.com/video/BKYUv3D9X2I/edit) |
+| 22 | Kinh Nikaya: Buông Bỏ Là Đỉnh Cao C... | **Muốn Khai Mở Trí Tuệ Uyên Bác, Sáng Suốt: Hãy...** | [Xem Shorts](https://youtube.com/shorts/gWCtCSaWyQw) | [Studio](https://studio.youtube.com/video/gWCtCSaWyQw/edit) |
+| 23 | Kinh Nikaya: Không Thấy Khổ Thì Khô... | **Không Thấy Khổ Thì Không Thấy Đạo: Lời Phật D...** | [Xem Shorts](https://youtube.com/shorts/JUs3rEtM3aI) | [Studio](https://studio.youtube.com/video/JUs3rEtM3aI/edit) |
+| 24 | Vì Sao Có Kẻ Giàu Người Nghèo, Ngườ... | **Vì Sao Cả Đời Bần Cùng Thiếu Thốn? Cội Rễ Nằm...** | [Xem Shorts](https://youtube.com/shorts/wj_poI1aQOM) | [Studio](https://studio.youtube.com/video/wj_poI1aQOM/edit) |
+| 25 | Vì Sao Đức Phật Từ Chối Cặp Y Của D... | **Vì Sao Đức Phật Từ Chối Cặp Y Của Di Mẫu? Sự ...** | [Xem Shorts](https://youtube.com/shorts/48fk1zGyoRs) | [Studio](https://studio.youtube.com/video/48fk1zGyoRs/edit) |
+| 26 | Ân Nghĩa Lớn Nhất Đời Người: Lời Ph... | **Ân Nghĩa Lớn Nhất Đời Người: Lời Phật Dạy Về ...** | [Xem Shorts](https://youtube.com/shorts/qarJEW33lSo) | [Studio](https://studio.youtube.com/video/qarJEW33lSo/edit) |
+| 27 | Có Nên Giúp Đỡ Kẻ Xấu? Bất Ngờ Với ... | **Có Nên Giúp Đỡ Kẻ Xấu? Bất Ngờ Với Lời Dạy Củ...** | [Xem Shorts](https://youtube.com/shorts/2eAXcpQRClA) | [Studio](https://studio.youtube.com/video/2eAXcpQRClA/edit) |
+| 28 | Phước Báu Của Người Giữ Giới: Sức M... | **Phước Báu Của Người Giữ Giới: Sức Mạnh Diệu K...** | [Xem Shorts](https://youtube.com/shorts/Jx6N7nZ19Xg) | [Studio](https://studio.youtube.com/video/Jx6N7nZ19Xg/edit) |
+| 29 | Mảnh Đất Màu Mỡ Của Bậc Thánh: Vì S... | **Mảnh Đất Màu Mỡ Của Bậc Thánh: Vì Sao Phước Đ...** | [Xem Shorts](https://youtube.com/shorts/UeegowUo8i4) | [Studio](https://studio.youtube.com/video/UeegowUo8i4/edit) |
+| 30 | Bảng Xếp Hạng 14 Cấp Độ Phước Báu P... | **Bảng Xếp Hạng 14 Cấp Độ Phước Báu Phật Dạy - ...** | [Xem Shorts](https://youtube.com/shorts/5qB-0SMcdyA) | [Studio](https://studio.youtube.com/video/5qB-0SMcdyA/edit) |
+| 31 | Cúng Cho Một Vị Thầy Hay Cho Tăng C... | **Cúng Cho Một Vị Thầy Hay Cho Tăng Chúng? Sai ...** | [Xem Shorts](https://youtube.com/shorts/iN4nJFXH_LM) | [Studio](https://studio.youtube.com/video/iN4nJFXH_LM/edit) |
+| 32 | 7 Cách Cúng Dường Tăng Đoàn Được Ph... | **7 Cách Cúng Dường Tăng Đoàn Được Phước Vô Biê...** | [Xem Shorts](https://youtube.com/shorts/bC7J8YYttT8) | [Studio](https://studio.youtube.com/video/bC7J8YYttT8/edit) |
+| 33 | Lời Tiên Tri Thời Mạt Pháp: Cúng Ch... | **Lời Tiên Tri Thời Mạt Pháp: Cúng Cho Vị Mang ...** | [Xem Shorts](https://youtube.com/shorts/OGZ4HBzp0wo) | [Studio](https://studio.youtube.com/video/OGZ4HBzp0wo/edit) |
+| 34 | 4 Bí Quyết Giúp Lễ Cúng Dường Đạt P... | **4 Bí Quyết Giúp Lễ Cúng Dường Đạt Phước Đức T...** | [Xem Shorts](https://youtube.com/shorts/jFcZXhMfQ58) | [Studio](https://studio.youtube.com/video/jFcZXhMfQ58/edit) |
+| 35 | Người Cho Thanh Tịnh - Người Nhận C... | **Người Cho Thanh Tịnh - Người Nhận Chưa Tốt: P...** | [Xem Shorts](https://youtube.com/shorts/dOoGaXkb9Wg) | [Studio](https://studio.youtube.com/video/dOoGaXkb9Wg/edit) |
+| 36 | Đồng Tiền Bất Chính Cúng Cho Bậc Ch... | **Đồng Tiền Bất Chính Cúng Cho Bậc Chân Tu: Có ...** | [Xem Shorts](https://youtube.com/shorts/bq3-HFOGNXU) | [Studio](https://studio.youtube.com/video/bq3-HFOGNXU/edit) |
+| 37 | Bố Thí Trong Mù Quáng: Khi Cả Người... | **Bố Thí Trong Mù Quáng: Khi Cả Người Cho Và Nh...** | [Xem Shorts](https://youtube.com/shorts/OBVmvbDDn-k) | [Studio](https://studio.youtube.com/video/OBVmvbDDn-k/edit) |
+| 38 | Cảnh Giới Tối Cao Của Sự Cho Đi: Cả... | **Muốn Giàu Sang Trước Hết Phải Biết Bố Thí: Lu...** | [Xem Shorts](https://youtube.com/shorts/tTlWM6V1-t0) | [Studio](https://studio.youtube.com/video/tTlWM6V1-t0/edit) |
+| 39 | Đỉnh Cao Bố Thí: Người Thoát Ly Tha... | **Đỉnh Cao Bố Thí: Người Thoát Ly Tham Ái Tặng ...** | [Xem Shorts](https://youtube.com/shorts/F48r4FJXI9w) | [Studio](https://studio.youtube.com/video/F48r4FJXI9w/edit) |
+| 40 | Nghèo Có Bố Thí Được Không? Bí Mật ... | **Vì Sao Cả Đời Bần Cùng Thiếu Thốn? Cội Rễ Nằm...** | [Xem Shorts](https://youtube.com/shorts/M0jargJeQxo) | [Studio](https://studio.youtube.com/video/M0jargJeQxo/edit) |
